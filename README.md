@@ -1,1 +1,1 @@
-#WordPress Theme - Kreate# kreate
+#WordPress Theme - Kreate
